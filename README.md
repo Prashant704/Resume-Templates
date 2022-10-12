@@ -18,5 +18,5 @@ Here are some good resume templates <br>
 
 2. [Komal Kumari](https://drive.google.com/file/d/1Krzx0oEX9EOQ65l8UuCYvsD3Bub91ZUn/view?usp=sharing)
 
-3. [Prashant Kumar Dubey](https://drive.google.com/drive/folders/1rF40RIudlg37fhuoAE4drXNu_bhaLnIg)
+3. [Prashant Kumar Dubey](https://drive.google.com/file/d/1fCuZrlqo3nQrC4U64WYAB2DMakD_X0NB/view?usp=sharing)
 
